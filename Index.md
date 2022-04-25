@@ -1,4 +1,6 @@
 # **Víctor Almansa Folch**
+<br>
+
 ## ***Técnico Informático***
 ### *+34 638 40 97 32| victor_almansa@hotmail.com | Barcelona*
 ## **Perfil**
