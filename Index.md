@@ -1,8 +1,8 @@
 # **Víctor Almansa Folch**
-<br>
-
 ## ***Técnico Informático***
 ### *+34 638 40 97 32| victor_almansa@hotmail.com | Barcelona*
+<br>
+
 ## **Perfil**
 ### Estudio del segudo curso de SMX
 ## **En busqueda de trbajo**
