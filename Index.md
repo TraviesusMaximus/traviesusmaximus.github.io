@@ -1,4 +1,4 @@
-<img src="/DIOrita.jpg">
+<img src="/KONO DIO DA.jpg">
 # **Víctor Almansa Folch**
 ## ***Técnico Informático***
 ### *+34 638 40 97 32| victor_almansa@hotmail.com | Barcelona*
