@@ -6,18 +6,24 @@
 ## **Perfil**
 ### Estudio del segudo curso de SMX
 <hr>
+<br>
+
 ## **En busqueda de trbajo**
 ### Prácticas curriculares para trabajar en un Departamento Informático
 ### Interes en el mantenimiento de equipos informáticos
 ### Alta motivación para seguir formándome
 ### Interés en adquirir experiencia profesional
 <hr>
+<br>
+
 ## **Educación**
 ### Ágora Masis Bach --> Primaria
 ### IES El Castell --> ESO
 ### Centro Vaughan --> Campamento de inmersión en inglés
 ### IFP l'Hospitalent del Llobregat --> 1r curso del grado medio de SMX
 <hr>
+<br>
+
 ## **Datos de interes**
 ### Plena disponibilidad tanto geográfica como horaria
 ### Trabajo en equipo
