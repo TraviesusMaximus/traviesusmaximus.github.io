@@ -1,4 +1,4 @@
-<img src="/KONO DIO DA.jpg">
+<img src="/Víctor Almansa Folch.jpg">
 
 
 # **Víctor Almansa Folch**
