@@ -1,4 +1,4 @@
-<img src="VAF.jpg">
+<img src="VAF.jpg" width="200px" height="350px">
 
 
 # **Víctor Almansa Folch**
