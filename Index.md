@@ -1,4 +1,4 @@
-<img src="Descargas/VAF.jpg">
+<img src="VAF.jpg">
 
 
 # **Víctor Almansa Folch**
