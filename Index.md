@@ -7,28 +7,28 @@
 <br>
 
 ## **Perfil**
-### Estudio del segudo curso de SMX
+### Estudio del 2n curso de grado medio de SMX.
 <hr>
 <br>
 
 ## **En busqueda de trbajo**
-### Prácticas curriculares para trabajar en un Departamento Informático
-### Interes en el mantenimiento de equipos informáticos
-### Alta motivación para seguir formándome
-### Interés en adquirir experiencia profesional
+### Prácticas curriculares para trabajar en un Departamento Informático.
+### Interes en el mantenimiento de equipos informáticos.
+### Alta motivación para seguir formándome.
+### Interés en adquirir experiencia profesional.
 <hr>
 <br>
 
 ## **Educación**
-### Ágora Masis Bach --> Primaria
-### IES El Castell --> ESO
-### Centro Vaughan --> Campamento verano de inmersión en inglés
-### IFP l'Hospitalent del Llobregat --> 1r curso del grado medio de SMX
+### Ágora Masis Bach --> Primaria.
+### IES El Castell --> ESO.
+### Centro Vaughan --> Campamento verano de inmersión en inglés.
+### IFP l'Hospitalent del Llobregat --> 1r curso del grado medio de SMX.
 <hr>
 <br>
 
 ## **Datos de interes**
-### Plena disponibilidad tanto geográfica como horaria
-### Trabajo en equipo
-### Dominio de entorno Office, Linux y Windows
-### Idiomas: Inglés B1, Español y Catalán
+### Plena disponibilidad tanto geográfica como horaria.
+### Trabajo en equipo.
+### Dominio de entorno Office, Linux y Windows.
+### Idiomas: Inglés B1, Español y Catalán bilingüe.
