@@ -22,7 +22,7 @@
 ## **Educación**
 ### Ágora Masis Bach --> Primaria
 ### IES El Castell --> ESO
-### Centro Vaughan --> Campamento de inmersión en inglés
+### Centro Vaughan --> Campamento verano de inmersión en inglés
 ### IFP l'Hospitalent del Llobregat --> 1r curso del grado medio de SMX
 <hr>
 <br>
